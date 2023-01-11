@@ -24,6 +24,22 @@ Repasar los métodos aprendidos para la resolución de circuitos
 
 3. RESOLUCIÓN DE EJERCICIOS
 
+![WhatsApp Image 2023-01-10 at 21 32 34 (4)](https://user-images.githubusercontent.com/117691236/211729428-70ae85bb-6f43-4b0b-b5d1-52ce64265862.jpeg)
+
+![WhatsApp Image 2023-01-10 at 21 32 34 (3)](https://user-images.githubusercontent.com/117691236/211729474-b1bd4342-80c8-4ca0-a1bb-a005e66ecf97.jpeg)
+
+![WhatsApp Image 2023-01-10 at 21 32 34 (2)](https://user-images.githubusercontent.com/117691236/211729528-d9db6b34-b4ef-41f6-ad5d-2a7362b5e595.jpeg)
+
+![WhatsApp Image 2023-01-10 at 21 32 34 (1)](https://user-images.githubusercontent.com/117691236/211729550-ba9b43ba-9590-41e3-ab2c-4befcb60aada.jpeg)
+
+![WhatsApp Image 2023-01-10 at 21 32 34](https://user-images.githubusercontent.com/117691236/211729621-49ca0c1c-cf0c-465c-8180-3acf84a1115c.jpeg)
+
+![WhatsApp Image 2023-01-10 at 21 32 35 (1)](https://user-images.githubusercontent.com/117691236/211729639-84ea8aa1-c89d-480d-a840-f832ccbb9040.jpeg)
+
+![WhatsApp Image 2023-01-10 at 21 32 35](https://user-images.githubusercontent.com/117691236/211729652-d5bcd1f3-947d-4974-b936-1177c5c08856.jpeg)
+
+
+
 4. VIDEO
 
 5.CONCLUSIONES
