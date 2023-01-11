@@ -20,7 +20,13 @@ Repasar los métodos aprendidos para la resolución de circuitos
 
 ![image](https://user-images.githubusercontent.com/117691236/211728274-acedc460-1aa2-475e-843c-681d30bb814e.png)
 
+![image](https://user-images.githubusercontent.com/117691236/211732300-5f75adac-1b91-45e6-9acb-8fe1b171b00a.png)
 
+![image](https://user-images.githubusercontent.com/117691236/211733798-cbc80204-5b18-413e-bc35-0bc44c8b32b3.png)
+
+![image](https://user-images.githubusercontent.com/117691236/211735349-ef21926d-02b7-47c6-9cf8-63c9867bbd1b.png)
+
+![image](https://user-images.githubusercontent.com/117691236/211737163-69c7cc4c-fdb4-4707-a53f-ef63f2da7e00.png)
 
 3. RESOLUCIÓN DE EJERCICIOS
 
